@@ -1,6 +1,6 @@
-Hi, i guess im somewhat a fish?... Because i liekt to eat it...
--I’m currently learning ... On everythinh possible 
-- 📫 How to reach me ... Magical md5 16fe4...
+Hi, I'm New to GitHub
+-I’m currently learning ... On everything possible 
+- 
 
 more practice for me and something like that...
 
